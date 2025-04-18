@@ -15,3 +15,12 @@ https://github.com/pravin5551/Ride-Karo.git
 https://gallery.appinventor.mit.edu/?galleryid=5344469425979392
 
 https://github.com/pravin5551/Ride-Karo?utm_source=chatgpt.com
+
+https://www.youtube.com/watch?v=cZISCpMvaG0
+https://www.youtube.com/playlist?list=PLCyqWFVstEV6IA6c4pM4hX5odZpWI2N0e
+https://www.youtube.com/playlist?list=PLYL7cTjwG3K_B0AtkNQUA3fmDgqmvJWE7
+https://www.youtube.com/playlist?list=PLo3k5IOIFgGwVD5TyhHq5babcm5PHn7Lh
+https://www.youtube.com/playlist?list=PLo3k5IOIFgGwVD5TyhHq5babcm5PHn7Lh|
+|
+https://www.youtube.com/watch?v=SOl-4P9WbuE
+https://www.youtube.com/watch?v=GRHDevCnb4c
