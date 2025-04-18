@@ -24,3 +24,5 @@ https://www.youtube.com/playlist?list=PLo3k5IOIFgGwVD5TyhHq5babcm5PHn7Lh|
 |
 https://www.youtube.com/watch?v=SOl-4P9WbuE
 https://www.youtube.com/watch?v=GRHDevCnb4c
+https://www.youtube.com/watch?v=cZISCpMvaG0
+https://www.youtube.com/watch?v=nW_nfbSPDj8
