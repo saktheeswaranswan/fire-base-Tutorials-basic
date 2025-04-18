@@ -11,3 +11,7 @@ https://appinventor.mit.edu/explore/ai2/pizzaparty.html?utm_source=chatgpt.com
 
 https://appinventor.mit.edu/explore/content/pizzaparty.html?utm_source=chatgpt.com
 https://github.com/pravin5551/Ride-Karo.git
+
+https://gallery.appinventor.mit.edu/?galleryid=5344469425979392
+
+https://github.com/pravin5551/Ride-Karo?utm_source=chatgpt.com
